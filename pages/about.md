@@ -11,7 +11,7 @@ GSA provides workplaces by constructing, managing, and preserving government bui
 
 ### Mission
 
-The mission of GSA is to deliver the best value in real estate, acquisition, and technology services to government and the American people.
+People helping people.
 
 ### History
 
